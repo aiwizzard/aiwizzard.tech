@@ -1,0 +1,1 @@
+# aiwizzard.tech
